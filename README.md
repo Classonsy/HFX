@@ -1,1 +1,1 @@
-<div class="tenor-gif-embed" data-postid="4911422805515545789" data-share-method="host" data-aspect-ratio="1.33155" data-width="100%"><a href="https://tenor.com/view/pavel-durov-pavel-durov-telegram-idk-gif-4911422805515545789">Pavel Durov GIF</a>from <a href="https://tenor.com/search/pavel-gifs">Pavel GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+
